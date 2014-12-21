@@ -1,4 +1,6 @@
-[Follow me on Twitter @clarecorthell](http://bit.ly/clarecorthelltwitter)
+﻿[Follow me on Twitter @clarecorthell](http://bit.ly/clarecorthelltwitter)
+
+I like them up
 
 Build Machine Learning applications with us at [Mattermark](http://www.mattermark.com/app/jobs) --> [email me!](http://www.google.com/recaptcha/mailhide/d?k=01KgESkAshOFOWRMyGkcdCEQ==&c=Cmjc2-OpRImyczz0qZ2fupPU5hPh_xmcRLiawYbBE8s=)
 
